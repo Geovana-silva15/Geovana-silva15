@@ -10,6 +10,6 @@ Meua nome é Geovana Silva
 
 ### Você entrar em contato comigo 📫
 
-@geovana.chiesa.silva@ecola.pr.gov.br
+@geovana.chiesa.silva@escola.pr.gov.br
 
 ![](https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif)
